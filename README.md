@@ -2,7 +2,7 @@
 - 👀 I’m interested in ethical hacking
 - 🌱 I’m currently learning C and Python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me insta:-@Titli.175
+- 📫 How to reach me insta:-@aria.126175
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: ...
 
